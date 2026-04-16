@@ -69,4 +69,4 @@ Vous recrutez ou vous connaissez une opportunité ?
 
 📧 **lucasflusin01@gmail.com**  
 📞 **+33 6 37 38 92 77**  
-🔗 **[linkedin.com/in/lucas-flusin](https://linkedin.com/in/lucas-flusin)**
+🔗 **[linkedin.com/in/lucas-flusin](https://www.linkedin.com/in/lucas-flusin-836b8b255/)**
